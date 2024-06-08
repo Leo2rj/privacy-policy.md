@@ -22,4 +22,4 @@ Podemos atualizar nossa Política de Privacidade de tempos em tempos. Recomendam
 
 Se você tiver qualquer dúvida sobre esta Política de Privacidade, entre em contato conosco:
 
-Email: [seuemail@dominio.com](mailto:seuemail@dominio.com)
+Email: 2rjfxleo@gmail.com
